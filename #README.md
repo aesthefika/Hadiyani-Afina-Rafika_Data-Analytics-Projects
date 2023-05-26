@@ -1,1 +1,1 @@
-# Data Analyst Portfolio: Excel, SQL, Tableau, Power BI, Python
+# Data Analyst Portfolio: Excel, SQL, and Power BI
