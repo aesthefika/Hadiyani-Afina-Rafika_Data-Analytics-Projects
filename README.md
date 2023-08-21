@@ -1,1 +1,10 @@
-
+![1](https://github.com/aesthefika/Hadiyani-Afina-Rafika_Data-Analytics-Projects/assets/127672579/2464b9af-a9c8-4e39-bdd8-92d22b7b6368)
+![2](https://github.com/aesthefika/Hadiyani-Afina-Rafika_Data-Analytics-Projects/assets/127672579/adcfcc48-27ab-4da9-9a91-325be33f779e)
+![3](https://github.com/aesthefika/Hadiyani-Afina-Rafika_Data-Analytics-Projects/assets/127672579/ad2921ee-5869-4a96-a6d7-200bef7298a7)
+![4](https://github.com/aesthefika/Hadiyani-Afina-Rafika_Data-Analytics-Projects/assets/127672579/cc5da5d9-869f-417b-a486-5167ce680c93)
+![5](https://github.com/aesthefika/Hadiyani-Afina-Rafika_Data-Analytics-Projects/assets/127672579/6605586e-18fb-4c91-b752-76b8c610a777)
+![6](https://github.com/aesthefika/Hadiyani-Afina-Rafika_Data-Analytics-Projects/assets/127672579/a1ee7c4d-4e30-47a7-80f0-141f78ba59f6)
+![7](https://github.com/aesthefika/Hadiyani-Afina-Rafika_Data-Analytics-Projects/assets/127672579/ece78947-517d-4388-abf7-aaa27322cf20)
+![8](https://github.com/aesthefika/Hadiyani-Afina-Rafika_Data-Analytics-Projects/assets/127672579/a5580791-9829-4883-812f-79300ea5d130)
+![9](https://github.com/aesthefika/Hadiyani-Afina-Rafika_Data-Analytics-Projects/assets/127672579/3c61c359-d218-4fae-b728-3e42351526fd)
+![10](https://github.com/aesthefika/Hadiyani-Afina-Rafika_Data-Analytics-Projects/assets/127672579/26e49ef0-fc89-4370-b8c1-e76a4e458373)
